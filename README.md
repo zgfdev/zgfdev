@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zgfdev
+- 👀 I’m interested in the objective world
+- 🌱 I’m currently learning constructing personal ideals
+- 💞️ I’m looking to collaborate on building a better world
+- 📫 How to reach me? zgfdev#g
